@@ -1,6 +1,6 @@
 GUI IMAGES
 
-ALL CREDITS GO TO Glirus#1000 LEAKING SCRIPT CAUSE THE GAME IS ASS 🤣
+ALL CREDITS GO TO Glirus#1000
 
 ![southside1](https://user-images.githubusercontent.com/78466988/106709996-47a5ac00-65c3-11eb-883c-f91886d284c3.png)
 ![southside2](https://user-images.githubusercontent.com/78466988/106710000-47a5ac00-65c3-11eb-92ae-17874edae6d5.png)
